@@ -8,7 +8,7 @@ I'm a Learning Data Science..
 Seeking opportunities to learn and grow in the world of Artificial Intelligence and Machine Learning | Constantly exploring the intersection of technology and creativity | 
 Let's connect and collaborate! 🤝 
 
-#AI #ML #EngineeringStuden
+#AI #ML #EngineeringStudent
 
 
 
